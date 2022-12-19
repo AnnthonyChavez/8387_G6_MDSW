@@ -3,3 +3,4 @@ Repositorio del grupo de trabajo N#6
 Saludos estoy accediendo al repositorio del G6 Ing. Jenny Ruiz 
 Accediendo al repositorio del G6 Brayan Vega
 Accediendo al repositorio del G6 Annthony Chavez
+#HOLA BRYAN XD
