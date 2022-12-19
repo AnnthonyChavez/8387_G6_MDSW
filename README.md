@@ -3,4 +3,4 @@ Repositorio del grupo de trabajo N#6
 
 Accediendo al repositorio del G6 Brayan Vega
 Accediendo al repositorio del G6 Annthony Chavez
-#HOLA BRYAN XD
+Accediendo al repositorio del G6 Kevin Panata
